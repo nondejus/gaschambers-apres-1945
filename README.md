@@ -1,2 +1,0 @@
-# gaschambers-apres-1945
-history of present day chemical warfare
